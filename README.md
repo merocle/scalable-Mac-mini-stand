@@ -1,0 +1,1 @@
+# scalable-Mac-mini-stand
